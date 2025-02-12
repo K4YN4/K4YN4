@@ -14,10 +14,10 @@
 <img align="center" src="https://github.com/user-attachments/assets/2bd422d1-1249-4ea7-91a9-d27c1483fbc3">★‧°𖦹｡⋆☆</a>
 </p>
 <br>
-<p align="justify">〃✦ ┆ hi ! this is an intro for pony . town ! ┆ 〃✦〃 ┆ i usually sit at the dandy's world area afk , so if you'd like to talk please whisper me first so i can see the notif ! ┆ 〃✦〃 ┆ i am okay with shipping our cosplays together but please ask beforehand . ┆ 〃✦〃 ┆ feel free to interact if you like <strong>iii , dandy's world , my singing monsters , splatoon , </strong> or invader zim ! ┆ 〃✦〃 ┆ i <strong>will</strong> hide you if you make me uncomfortable , so please don't fuss about it . ┆ 〃✦〃 ┆ please note that <strong>i am eighteen</strong> and i completely understand if you do not feel comfortable interacting !┆ ✦〃</p><br><br><br><br><br><br><br><br>
+<p align="justify">〃✦ ┆ hi ! this is an intro for pony . town ! ┆ 〃✦〃 ┆ i usually sit at the dandy's world area afk , so if you'd like to talk please whisper me first so i can see the notif ! ┆ 〃✦〃 ┆ i am okay with shipping our cosplays together but please ask beforehand . ┆ 〃✦〃 ┆ feel free to interact if you like <strong>iii , dandy's world , my singing monsters , splatoon , </strong> or invader zim ! ┆ 〃✦〃 ┆ i <strong>will</strong> hide you if you make me uncomfortable , so please don't fuss about it . ┆ 〃✦〃 ┆ please note that <strong>i am eighteen</strong> and i completely understand if you do not feel comfortable interacting !┆ ✦〃</p><br><br><br><br><br><br><br><br><br><br><br><br><br>
 
 <p align="center">
-  <img align="center" src="https://github.com/user-attachments/assets/d5e0d012-85cd-40da-9c34-7f63cffb972d" width="350" height="auto" title="looey !"></p>
+  <img align="center" src="https://github.com/user-attachments/assets/d5e0d012-85cd-40da-9c34-7f63cffb972d" width="350" height="auto" title="womp womp !"></p><br><br>
 
   
    <img align="right" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/0/0d/Looey_Information_Card_Artwork.png/revision/latest?cb=20250123000452" width="350" height="auto" title="looey !">
