@@ -24,7 +24,7 @@
     <div id="user-content-toc"> <ul align="center" style="list-style: none;"> <summary>
    <h2 align="center">dni  ༘⋆</h2></summary></ul></div>
 <p align="justify">⤷<a href="https://basic-dni.crd.co/">basic dni</a><br>⤷scraps x goob , toodles x anyone , pebble x anyone (but coal) , coal x anyone (but pebble) shippers <sub>( so basically proshippers )</sub><br>⤷<strong>those</strong> fruitcake / christmascookie / moonflower shippers<br>⤷people who hate on rarepairs <sub>( my main rarepair is silent night (bobette x astro) and my partner and i have already received hate for sitting as them <sub><sub><sub><s>( mostly from moonflower shippers who said that ! )</s></sub></sub></sub> just . have common sense , people . )</sub><br>⤷people who don't ask to do ships<br>⤷just generally rude people</p>
-<p align="justify">i can and <strong>will</strong> hide / block people as i please , as stated before . do not try and hunt me down so i can unhide / unblock you <sub>( that'll probably decrease your chances at getting unhidden / unblocked ngl )</sub></p><br><br><br><br><br><br><br><br><br>
+<p align="justify">i can and <strong>will</strong> hide / block people as i please , as stated before . do not try and hunt me down so i can unhide / unblock you <sub>( that'll probably decrease your chances at getting unhidden / unblocked ngl )</sub></p><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 
 <p align="center"><a href="https://lifering.straw.page/">🎈𓍯𓂃 thanks for reading !</a></p>
 
