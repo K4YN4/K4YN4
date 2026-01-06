@@ -28,7 +28,7 @@ please note i am nineteen (19) so if you decide to not interact, that is complet
   ⤷ toxic shippers who force their ships / hate rarepairs<br>
   ⤷ people who don't ask to do ships<br>
   ⤷ just generally rude people</p>
-<p align="justify">i can and <strong>will</strong> hide / block people as i please, as stated before. do not try and hunt me down so i can unhide / unblock you <sub>( that'll probably decrease your chances at getting unhidden / unblocked.)</sub></p><br/><br/>
+<p align="justify">i can and <strong>will</strong> hide / block people as i please, as stated before. do not try and hunt me down so i can unhide / unblock you <sub>( that'll probably decrease your chances at getting unhidden / unblocked.)</sub></p><br/><br/><br/><br/>
 
 <p align="center">thanks for reading !</p>
 <p align="center"><sub>click <a href="https://kayna.atabook.org/">here </a> for my ata and <a href="https://lifering.straw.page/">here</a> for my strawpage!</sub></p>
