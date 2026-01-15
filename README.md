@@ -1,11 +1,11 @@
 <h1 align="center">
 <p>⋆｡‧˚ʚ"the all powerful, legendary pokemon!... yada, yada, yada."ɞ˚‧｡⋆</p>
-  <img height="200" alt="my name's jirachi" src="https://64.media.tumblr.com/1f85e06a41a807002163eeeca03a75a6/db0ac0a00229f922-2c/s2048x3072/e787347c2e834f453910f3a7444762e75f262f58.pnj"/>
+  <img height="200" alt="my name's jirachi" src="https://file.garden/aD_wNrhR3BZZ-lk3/jirachi%20mention/New%20Project(37).png"/>
 </h1>
 <br>
 
 <p align="center">
-  <img align="left" src="https://64.media.tumblr.com/9e9beb67320e03f93d15c78a4eb45421/db0ac0a00229f922-92/s1280x1920/cd39af6747654bab0992850a0dd1fdcd638f27e1.pnj" width="350" height="auto" title="i'm a legendary. i know everything. i *heard* everything."></p>
+  <img align="left" src="https://file.garden/aD_wNrhR3BZZ-lk3/jirachi%20mention/New%20Project(36).png" width="350" height="auto" title="i'm a legendary. i know everything. i *heard* everything."></p>
   <div align="center" id="user-content-toc"><ul align="center" style="list-style: none;">  <summary> 
 <h2 align="center">kayna / harley .ᐟ ݁⋆⭒˚.⋆</h2></summary></ul></div>
 <p align="center"><a href="https://pronouns.cc/@kayna">⊹₊ ˚‧ she/they + neos ‧˚₊ ⊹</a>
@@ -17,10 +17,10 @@ please note i am nineteen (19) so if you decide to not interact, that is complet
 . ݁₊ ✶. ݁ ˖ˎˊ˗</p><br/>
 
 <p align="center">
-  <img align="center" src="https://64.media.tumblr.com/68154ec0464fa799edb6aeb4451b2a0b/db0ac0a00229f922-44/s1280x1920/5a2e1834f3f78cf7d189055289d0415a4a328e85.pnj" width="350" height="auto" title="thanks for destroying the universe. what a twist! you were the evil one all along! i hope you have fun in your last minute alive. ta-ta!"></p><br><br>
+  <img align="center" src="https://file.garden/aD_wNrhR3BZZ-lk3/jirachi%20mention/New%20Project(14)(1).png" width="350" height="auto" title="thanks for destroying the universe. what a twist! you were the evil one all along! i hope you have fun in your last minute alive. ta-ta!"></p><br><br>
 
   
-   <img align="right" src="https://64.media.tumblr.com/707b0a61be9c2307a464f4f8f9f5fb46/db0ac0a00229f922-d0/s1280x1920/f4a4fa974d4d612930711ed17abd82c7f77d11d7.pnj" width="350" height="auto" title="wiwwiwwiw. deal with it.">
+   <img align="right" src="https://file.garden/aD_wNrhR3BZZ-lk3/jirachi%20mention/New%20Project(38).png" width="350" height="auto" title="wiwwiwwiw. deal with it.">
     <div id="user-content-toc"><ul align="center" style="list-style: none;"><summary>
    <h2 align="center">dni  ⋆⭒˚.⋆</h2></summary></ul></div>
 <p align="justify">⤷ <a href="https://basic-dni.crd.co/">basic dni</a><br>
